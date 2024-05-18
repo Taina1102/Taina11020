@@ -8,5 +8,10 @@ Meu nome é Taina
 
 - ### Você pode entrar em contato comigo 📫
 
-00001130144756
-@marcelopaludetto
+00001130144756sp@al.educacao.sp.gov.br
+
+![](https://media.tenor.com/p4Wl8O4MhJMAAAAi/silence-cute.gif
+)
+
+
+
